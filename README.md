@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mostlyharmless19
-- 👀 I’m interested in reading, gardening, comics, general witchy/pagan things
+- 👀 I’m interested in books, gardening, cats, coffee, viideo games, comics, general witchy/pagan things
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me ... don't?
